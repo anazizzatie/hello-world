@@ -2,4 +2,4 @@
 just another respository
 
 Hi Anaz !
-welcome thanksyou .
+welcome thanksyou.
